@@ -1,1 +1,1 @@
-# My Personal Blog - www.vijaikumar.com
+# My Personal Blog - www.vijaynallagatla.com
